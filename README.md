@@ -1,0 +1,1 @@
+Bitmemiş olanlar var
